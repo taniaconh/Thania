@@ -1,6 +1,6 @@
 # **Thania**
 
-## Esta es un breve reseña sobre mi persona
+## Esta es una breve reseña sobre mi persona
 
 * Mi nombre es Thania Arteaga :blush:
 
